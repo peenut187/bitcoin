@@ -1,1 +1,2 @@
-namood is clever
+This coin will change cyrpto world!
+
